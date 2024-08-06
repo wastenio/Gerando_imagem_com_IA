@@ -1,0 +1,1 @@
+# Gerando_imagem_com_IA
